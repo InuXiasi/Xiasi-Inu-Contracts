@@ -17,4 +17,7 @@
 🐕‍Join telegram:https://t.me/Xiasi
 
 
+🐕‍Twitter:https://twitter.com/InuXiasi?s=09
+
+
 https://bscscan.com/token/0x0e20E3216EA172fcf9eAa19723b119e090fD353f
